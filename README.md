@@ -1,0 +1,2 @@
+# DIGISEN-OSIS-SMKN-MANONJAYA
+absen pro
